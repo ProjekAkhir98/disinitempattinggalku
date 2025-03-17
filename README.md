@@ -1,0 +1,2 @@
+# disinitempattinggalku
+ini projek akhir
